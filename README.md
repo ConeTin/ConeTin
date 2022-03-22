@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ConeTin
+- 👀 I’m interested in Minecraft Hacked Client coding
+- 🌱 I’m currently learning java
+- 📫 How to reach me:
+- 📫 Discord - ConeTin#4687
+- 📫 VK - https://vk.com/rai1y
